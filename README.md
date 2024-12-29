@@ -1,1 +1,2 @@
 # Arte-en-movimiento
+Pedro Figari nos invita a conectar con nuestras raíces culturales a través del arte. Con colores vivos y trazos dinámicos, supo plasmar la esencia del Río de la Plata: candombes, patios y tradiciones que celebran la diversidad. Figari fue mucho más que un pintor; fue un narrador visual de una época, llevando el alma de su tierra al lienzo y dejando un legado de creatividad y memoria colectiva.
